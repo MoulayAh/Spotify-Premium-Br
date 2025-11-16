@@ -1,5 +1,5 @@
 
-![bAQVzvgzgS](https://github.com/user-attachments/assets/17b4c1a8-4b5b-4071-8ba8-5dc9887744ae)
+![original-8953c5cfc4bf26578308d60adb6069e6](https://github.com/user-attachments/assets/2d655fad-f9fd-4cad-82df-6c67a43290f0)
 
 # Spotify Premium GRÁTIS 2025 – Funciona 100% (Brasil) 
 
